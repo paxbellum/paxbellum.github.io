@@ -3,9 +3,9 @@ published: true
 title: The Nature of Conflict
 layout: post
 ---
-The concept of Peace and War is old trope, for sure. Militarily the concept is well ingrained both historically and in modernity. Eve in literature we can see the war of man and his psyche. The struggle of life's adventure can often wreak havoc upon individuals. The purpose of struggle then is conflict juxtaposed with its absence. 
+Militarily the concept of conflict is well ingrained, both historically and in modernity. Literature shows us that there is much more to conflict than just the physical atrocities of battle. There is a whole other dimension of internalized conflict within our very own psyches. So we have both physical and metal conflicts that arise throughout life, and sometimes our daily struggle in life's adventure can  wreak havoc upon us. 
 
-The point of struggle, assumed, is to overcome conflict. And stories about people are about the process, that resolution, that comes at the end of the conflict. We can, and often, struggle more with ourselves than outside influences. We cut ourselves off from the world, believing that we will find our answers and our happiness in that isolation.
+You might argue that the sole point of conflict is to overcome it. And stories about people are about the process, that resolution, that comes at the end of the conflict. We can, and often, struggle more with ourselves than outside influences. We cut ourselves off from the world, believing that we will find our answers and our happiness in that isolation.
 
 So the ideas of both peace and war modify our social behavior. We cannot fight everyone and everything. Harmony in peace also does not give us struggle. It limits growth,  understanding and maturation.
 
@@ -29,5 +29,4 @@ And now we are happy, aren't we?
 
 A little worn out and tired. All reserves of energy have been spent. There is no more replenishment left. NO struggle left, perchance no will. 
 
-But what is life without struggle, conflict. It brings change, begetting action, thinking and acting. It enlivens thought, philosophical meaning, societal bounds and the desire to survive and make the world a better place, but first it has to be a worse place. 
-
+But what is life without struggle, conflict. It brings change, begetting action, thinking and acting. It enlivens thought, philosophical meaning, societal bounds and the desire to survive and make the world a better place, but first it has to be a worse place.
