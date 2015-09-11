@@ -3,9 +3,9 @@ published: true
 title: The Nature of Conflict
 layout: post
 ---
-The concept of conflict is well ingrained, both historically and in modernity. Literature shows us that there is much more to conflict than just the physical atrocities of battle. There is a whole other dimension of internalized conflict within our very own psyches. So we have both physical and metal conflicts that arise throughout life, and sometimes our daily struggle in life's adventure can  wreak havoc upon us. 
+The concepts of war and conflict has been well discoursed upon, both historically and in modernity. Literature shows us that there is much more to both than just the physical atrocities of fighting. There is this other whole dimension of internalized war that takes place within our  own psyches. Physical and mental conflicts constantly arise throughout life, and wreak havoc upon our perception of how we think our very own lives ought to be. 
 
-You might argue that the sole point of conflict is to overcome it. And stories about people are about the process, that resolution, that comes at the end of the conflict. We can, and often, struggle more with ourselves than outside influences. We cut ourselves off from the world, believing that we will find our answers and our happiness in that isolation.
+Firstly, you might argue that the sole point of conflict is to overcome it. Stories abound about people and the process of overcoming, resolution, that comes at the end of the conflict. We can, and often, struggle more with ourselves than outside influences. We cut ourselves off from the world, believing that we will find our answers and our happiness in that isolation.
 
 So the ideas of both peace and war modify our social behavior. We cannot fight everyone and everything. Harmony in peace also does not give us struggle. It limits growth,  understanding and maturation.
 
