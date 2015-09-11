@@ -15,18 +15,10 @@ But a time comes when we again want to break free into what we consider total in
 
 Again we take up arms. Against our former friends and allies. Assault them with radical thoughts and feelings, societal norms, because we are individuals, we want anarchy, everything done for individual gain, individual reasons. 
 
-Hopefully, at some point, we we come to the onerous conclusion of how futile all the rebellions have been. How difficult and tiresome it is ruling alone .Lonesome, barren and unforgiving. 
+Hopefully, at some point, we we come to the onerous conclusion of how futile all the rebellions have been. They have merely ostracized us. We feel like a castaway, but realize that we have done it to ourselves. 
 
-We want to separate and distance ourselves, create our own worlds  we command. Masters or our own domain. 
+So we parlay. We play tit for tat. We negotiate terms, what are willing to give up in exchange for love and acceptance from others. we make new friends , new loves. We revel in the bounty of ideas, adventures and fun. And believe all previous rebellions, all struggles have brought us to this one particular spot at this one particular time, and isn't it wonderful. 
 
-So we parlay
-
-We play tit for tat. We negotiate terms, what are willing to give up in exchange for love and acceptance from others. we make new friends , new loves. We revel in the bounty of ideas, adventures and fun. And believe all previous rebellions, all struggles have brought us to this one particular spot at this one particular time, and isn't it wonderful. 
-
-No need to struggle, the conflict stops. 
-
-And now we are happy, aren't we? 
-
-A little worn out and tired. All reserves of energy have been spent. There is no more replenishment left. NO struggle left, perchance no will. 
+Naturally this has eliminated all of our underlying reasons of conflict, there is no longer any need to struggle, the conflict stops. The conflict stops? And now we are happy, aren't we? Happy?
 
 But what is life without struggle, conflict. It brings change, begetting action, thinking and acting. It enlivens thought, philosophical meaning, societal bounds and the desire to survive and make the world a better place, but first it has to be a worse place.
