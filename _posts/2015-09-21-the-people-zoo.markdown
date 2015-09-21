@@ -31,11 +31,9 @@ Extinction would have been kinder
 
 They do not belong
 
+Anywhere
 
-		Anywhere
-
-				Anytime
-
+Anytime
 
 Welcome to the People Zoo
 
