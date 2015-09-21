@@ -14,14 +14,23 @@ The horrors
 The grotesque
 
 Repugnant forms
+
 From another age
+
 Lost in time and space
+
 Preserved for eternity
+
 For you to gaze upon
+
 Unable to evolve
+
 Atrocities forsaken by their own neglect
+
 Extinction would have been kinder
+
 They do not belong
+
 
 		Anywhere
 
@@ -29,4 +38,5 @@ They do not belong
 
 
 Welcome to the People Zoo
+
 Please enjoy your visit
