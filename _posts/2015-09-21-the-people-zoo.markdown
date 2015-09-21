@@ -4,10 +4,15 @@ title: The People Zoo
 layout: post
 ---
 Come on in, see the attractions
+
 Oh what sights you will see
+
 The curiosities
+
 The horrors
+
 The grotesque
+
 Repugnant forms
 From another age
 Lost in time and space
