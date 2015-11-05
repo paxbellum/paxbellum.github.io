@@ -1,9 +1,9 @@
 ---
 published: true
-title: The tilted Earth
+title: The Tilted Earth
 layout: post
 ---
-One day the earth tipped over
+One day the earth tipped over.
 No, seriously just plunk, on her side
 Like a drunk falling off a sidewalk
 You can imagine my surprise, 
