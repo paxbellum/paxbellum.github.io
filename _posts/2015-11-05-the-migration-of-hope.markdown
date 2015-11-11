@@ -4,18 +4,29 @@ title: The Migration of Hope
 layout: post
 ---
 My father is dead.
+
 So are my mother, brother and sister. 
+
 My whole family. 
+
 Gone. 
 
+
 I used to be a kid. 
+
 A normal, happy kid. 
+
 I laughed and played. 
+
 I used to run all day. 
 
+
 I loved to listen to the stories my father told. 
+
 Every night he would tuck us all in, sit beside us and we would all fall asleep to the sound of his voice. 
+
 His voice is silent now. 
+
 
 My mother was the best mother in the world. 
 
