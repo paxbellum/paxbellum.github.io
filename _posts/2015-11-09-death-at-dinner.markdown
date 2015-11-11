@@ -5,22 +5,22 @@ layout: post
 ---
 Death stalked us
 
-It slithered in
+Silently it slithered in
 
-It choked us
+Quietly it choked us
 
-It split us apart
+Surreptitiously it split us apart
 
-Coming for all of us
+It came for us all
 
-Surrounded on all sides
+Deftly we had been enveloped
 
-No escape
+No escape left
 
-We surrendered
+So we surrendered
 
 Each and every one
 
-Before we even knew we had succumbed
+Before we even knew that we had succumbed
 
 To the death of conversation
